@@ -1,0 +1,1 @@
+# mini-ahkaten-for-smit
